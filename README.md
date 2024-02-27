@@ -6,8 +6,7 @@
 👀 I’m interested in artificial intelligence<br>- 
 🌱 I’m currently learning python for machine learning<br>- 
 💞️ I’m looking to collaborate on Micro, Macro Massive at Infinite Learning<br>- 
-📫 How to reach me<br>- Instagram : @sanimoch_sopian<br>- Instagram : @sibujangga <projek><br>- Youtube : SiBuJangGarut<br>- 
-😄 Pronouns: ...<br>- 
+📫 How to reach me<br>- Instagram : @sanimoch_sopian<br>- Instagram : @sibujangga <projek><br>- Youtube : SiBuJangGarut<br>-  
 ⚡ Fun fact: I like Guitar<br>
 
 

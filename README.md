@@ -6,13 +6,11 @@
 👀 I’m interested in artificial intelligence<br>- 
 🌱 I’m currently learning python for machine learning<br>- 
 💞️ I’m looking to collaborate on Micro, Macro Massive at Infinite Learning<br>- 
+⚡ Fun fact: I like Guitar<br>-
 📫 How to reach me<br>
 - Instagram : @sanimoch_sopian<br>
 - Instagram : @sibujangga <projek><br>
 - Youtube : SiBuJangGarut<br>-  
-⚡ Fun fact: I like Guitar<br>
-
-
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sanimoch_sopian) [![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white)](https://youtube.com/@SiBuJangGarut) 
 

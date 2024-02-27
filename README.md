@@ -1,5 +1,13 @@
 # 💫 About Me:
-# Hello World!!<br>- 👋 Hi, I’m sanimochsopian<br>- 👋 I’m a mentee on IBM Advance AI at Infinite Learning<br>- 👀 I’m interested in artificial intelligence<br>- 🌱 I’m currently learning python for machine learning<br>- 💞️ I’m looking to collaborate on Micro, Macro Massive at Infinite Learning<br>- 📫 How to reach me<br>- Instagram : @sanimoch_sopian<br>- Instagram : @sibujangga <projek><br>- Youtube : SiBuJangGarut<br>- 😄 Pronouns: ...<br>- ⚡ Fun fact: I like Guitar<br>
+# Hello World!!<br>- 
+👋 Hi, I’m sanimochsopian<br>- 
+👋 I’m a mentee on IBM Advance AI at Infinite Learning<br>- 
+👀 I’m interested in artificial intelligence<br>- 
+🌱 I’m currently learning python for machine learning<br>- 
+💞️ I’m looking to collaborate on Micro, Macro Massive at Infinite Learning<br>- 
+📫 How to reach me<br>- Instagram : @sanimoch_sopian<br>- Instagram : @sibujangga <projek><br>- Youtube : SiBuJangGarut<br>- 
+😄 Pronouns: ...<br>- 
+⚡ Fun fact: I like Guitar<br>
 
 
 ## 🌐 Socials:

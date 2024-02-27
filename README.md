@@ -1,5 +1,5 @@
 # 💫 About Me:
-# Hello World!!<br>- 
+# Hello World!!
 👋 Hi, I’m sanimochsopian<br>- 
 👋 I’m a mentee on IBM Advance AI at Infinite Learning<br>- 
 👀 I’m interested in artificial intelligence<br>- 
